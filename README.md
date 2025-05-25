@@ -1,8 +1,8 @@
-[![Brat Generator: Create Charli XCX-Style Album Covers,free online tool ...](https://tse4.mm.bing.net/th?id=OIP.HlDP8XxvEEGY17lDjP8qoQHaE8\&pid=Api)](brat-generator.club)
+[![Brat Generator: Create Charli XCX-Style Album Covers,free online tool ...](https://tse4.mm.bing.net/th?id=OIP.HlDP8XxvEEGY17lDjP8qoQHaE8\&pid=Api)](https://brat-generator.club)
 
-([brat-generator.club][1])
+([https://brat-generator.club][1])
 
-The Brat Generator is a free online tool that allows users to create custom images resembling the album cover of *Brat* by Charli XCX. With its distinctive green background and minimalist lowercase typography, the Brat Generator has become a popular means for fans and creators to engage with the album's aesthetic.([brat-generator.club][1])
+The Brat Generator is a free online tool that allows users to create custom images resembling the album cover of *Brat* by Charli XCX. With its distinctive green background and minimalist lowercase typography, the Brat Generator has become a popular means for fans and creators to engage with the album's aesthetic.([https://brat-generator.club][1])
 
 ## Table of Contents
 
